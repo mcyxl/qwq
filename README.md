@@ -1,2 +1,2 @@
 # 晴雨
-http://cpolar.com/
+[3f905768.r7.cpolar.top]3f905768.r7.cpolar.top
